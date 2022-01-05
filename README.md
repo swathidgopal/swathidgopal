@@ -1,4 +1,4 @@
-### Hi there 👋 I am Swathi Gopal
+### Hi there 👋 I'm Swathi Gopal 😊
 
 <!--
 **swathidgopal/swathidgopal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
