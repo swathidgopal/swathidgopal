@@ -13,7 +13,6 @@ It is for the fact that the hardware and software must be co designed to produce
 
 💼Looking for internship opportunities
 
-🌱 I’m currently learning to code😜
 
 ⚡ Fun fact: I love cooking👩‍🍳 
 <br/>
